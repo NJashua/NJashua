@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @NJashua
+- 👀 I’m interested in ... frontend and backend 
+- 🌱 I’m currently learning ...java
+- 💞️ I’m looking to collaborate on ... knowledge gaining 
+- 📫 How to reach me ... nithinjashua1@gmail.com, nithin_2228, https://www.linkedin.com/in/nithin-jashua-0820aa251
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...yup, initiative slow..,
