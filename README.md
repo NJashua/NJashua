@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NJashua
+- 👋 Hi, I’m @Nithin
 - 👀 I’m interested in ... frontend and backend 
 - 🌱 I’m currently learning ...java
 - 💞️ I’m looking to collaborate on ... knowledge gaining 
